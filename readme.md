@@ -1,15 +1,3 @@
-gdkfygwlsgdflafjhs
-khfskjhbjfgsdhjgfsdhbf
-dfhbvslfgzaysgfkjhsdbf
-hfgalsyfglawyfgfvhljsdgfas
-jdhgflahgfluiawgfasjdhfb
-hjdgfssssssssssssssssss
-gffffffff
-hdbfhfghgfhgffgfgef
-f
-f
-fsdgfalsgfawgfweghf
-hghghdrifgirgf
-siudfgshbuynjsbfhbyh
-jgubhlogd
-dfghj
+bom dia, o sol ja nasce la na fazendinha
+levanta o bezerro e a vaquinha
+que ja cocoricou dona galinha
